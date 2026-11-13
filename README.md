@@ -8,13 +8,7 @@ my mixes
 ![](https://i.ibb.co/KMb16hF/screenshot614.jpg)
 ![](https://i.ibb.co/d4hZrRLw/screenshot616.jpg)
 
-[life is beautiful old](https://drive.google.com/file/d/13yqvZsiWStXkwSKhsBsDE0xaWT8BIVgD/view?usp=drive_link)
-![](https://i.ibb.co/jZz26GFp/screenshot611.jpg)
-![](https://i.ibb.co/Zp03n8Cd/screenshot608.jpg)
-![](https://i.ibb.co/SXKNJDmd/screenshot610.jpg)
-![](https://i.ibb.co/Gv3TCyPn/screenshot609.jpg)
-
-[life is beautiful](https://drive.google.com/file/d/1eSPSpyRFq8zeaS261mJK99IDK8--45vZ/view?usp=sharing)
+[life is beautiful (dt, nm and old versions)](https://drive.google.com/drive/folders/12Aph9_nY63QGITaEl_fqKbe5ZxDR-sJj?usp=sharing)
 ![](https://i.ibb.co/rKJb7qd0/screenshot603.jpg)
 ![](https://i.ibb.co/q3QWyBzk/screenshot600.jpg)
 ![](https://i.ibb.co/h6fCDqs/screenshot602.jpg)
